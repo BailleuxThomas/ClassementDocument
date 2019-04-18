@@ -1,1 +1,1 @@
-# Classer ses films,serie,photos,vidéos, autres :D
+# Classer ses films,séries,photos,vidéos, autres :D
